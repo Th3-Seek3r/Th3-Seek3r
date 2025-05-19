@@ -1,4 +1,4 @@
-## Hi there 👋
+## Th3-se3k3r🥷 | Ọládiméjì
 
 Pen-tester (Mobile & Web)🚨 💻 | Hardware H4x0r| IOT & Embedded Syst3m 🤖💡🧰 | CTF Organizer & Player👾
 
